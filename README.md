@@ -1,1 +1,0 @@
-# suliprojekt_7escsipetcsapat
